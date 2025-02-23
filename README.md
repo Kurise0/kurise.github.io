@@ -1,1 +1,0 @@
-# kurise.github.io
